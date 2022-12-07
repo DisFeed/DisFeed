@@ -1,1 +1,1 @@
-I usally don't use this platform....not much else to say
+Don't use this much, hopefully I can change that soon.
