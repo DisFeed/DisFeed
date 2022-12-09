@@ -1,1 +1,1 @@
-Don't use this much, hopefully I can change that soon.
+Don't use this much, i'm hoping to change that soonish.
