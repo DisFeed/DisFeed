@@ -1,1 +1,1 @@
-Don't use this much, i'm hoping to change that soonish.
+Expanding overal IT knowledge. Intrested in Cybersecurity, Server Hosting, and Websites.
