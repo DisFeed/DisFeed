@@ -1,1 +1,1 @@
-Expanding overal IT knowledge.
+Learning Python, and just explanding overal IT knowladge.
