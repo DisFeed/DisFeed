@@ -1,1 +1,1 @@
-Facinated in startup culture, and tech market.
+Facinated in startup culture, and the tech market.
