@@ -1,1 +1,1 @@
-Learning Python, and just explanding overal IT knowladge.
+Facinated in startup culture, and tech market.
