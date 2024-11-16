@@ -1,1 +1,1 @@
-Intrested in startup culture, and the tech market.
+Intrested in business and tech.
